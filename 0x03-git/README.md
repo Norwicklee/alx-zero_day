@@ -1,1 +1,1 @@
-I love winter it is not too hot.
+I love winter, it is not too hot.
